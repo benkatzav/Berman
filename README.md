@@ -5,7 +5,7 @@ Some photos:
 
 ![image](https://user-images.githubusercontent.com/88583978/144284493-9939ae14-0f82-46ac-a9f6-a5a2c7ceb735.png)
 
-![image](https://user-images.githubusercontent.com/88583978/144284831-40db70ab-bd01-4020-9b13-1ddc47411d8f.png)
+![image](https://user-images.githubusercontent.com/88583978/144286354-00c62f13-a103-469b-845d-760ac89fc84e.png)
 
 ![image](https://user-images.githubusercontent.com/88583978/144285025-5f85d212-f337-43d0-a18f-a0b344cb6329.png)
 
