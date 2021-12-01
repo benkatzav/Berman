@@ -9,7 +9,7 @@ Some photos:
 
 ![image](https://user-images.githubusercontent.com/88583978/144285025-5f85d212-f337-43d0-a18f-a0b344cb6329.png)
 
-![image](https://user-images.githubusercontent.com/88583978/144285236-341e77a4-a81e-4214-9c8e-3a0b14ff6c31.png)
+![image](https://user-images.githubusercontent.com/88583978/144286714-6e821a66-a761-4acd-a1bf-74ae4cecbd83.png)
 
 ![image](https://user-images.githubusercontent.com/88583978/144285372-428a1c4e-69a6-4bf4-b11b-aee91d3fdc2b.png)
 
